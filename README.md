@@ -4,7 +4,7 @@
 
 ### Professora: Drª Alana Morais ([alanamm.prof@gmail.com](mailto:alanamm.prof@gmail.com))
 
-### Aluno: Iria Guazzi Linden ([iria.guazzi@hotmail.com](mailto:iria.guazzi@hotmail.com))
+### Aluna: Iria Guazzi Linden ([iria.guazzi@hotmail.com](mailto:iria.guazzi@hotmail.com))
 
 
 ## Nome
